@@ -17,6 +17,6 @@ For weight loss it is important to not stress about the daily weight because it 
 
 # Contact Us
 
-If you have any questions or suggestions about our Privacy Policy, do not hesitate to contact us.
+If you have any questions or suggestions about Heikin, do not hesitate to contact us.
 
 Email: fxiaoding@gmail.com
